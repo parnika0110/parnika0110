@@ -1,4 +1,4 @@
-# Hi, I'm Parnika
+# Hi, I'm Parnika S M
 
 I like taking ideas from **"what if?"** to **"it works."**
 
